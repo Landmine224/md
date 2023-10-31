@@ -2,6 +2,8 @@
 
 Orem, Utah 84058
 
+[LinkedIn Profile](https://www.linkedin.com/in/landon-tolman-181498144)
+
 801-784-0856 | [Website](https://landon-tolman.com)
 
 [landontolman99@gmail.com](mailto:landontolman99@gmail.com)
